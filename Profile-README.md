@@ -1,4 +1,4 @@
-👋 Hey there! I'm [TribeOfJudahLion]
+👋 Hey there! I'm TribeOfJudahLion
 
 🎓 Educational Background
 
